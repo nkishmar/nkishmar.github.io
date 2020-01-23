@@ -1,1 +1,0 @@
-# nkishmar.github.io
